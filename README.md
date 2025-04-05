@@ -1,5 +1,5 @@
 <p align="center">
-<img width="600" height="300" src="https://64.media.tumblr.com/7596369539644c44ecd9a7569dd952ee/d7e9847722cb2a35-4b/s540x810/383fccfaa16a7cc98020f6a666b2a51e24fa0d2c.gifv">   
+<img width="6666" height="200" src="https://64.media.tumblr.com/7596369539644c44ecd9a7569dd952ee/d7e9847722cb2a35-4b/s540x810/383fccfaa16a7cc98020f6a666b2a51e24fa0d2c.gifv">   
 </p>
 
 
@@ -12,5 +12,5 @@ $${\color{blue}.......}$$
 https://fruit-taurs.straw.page 
   
 <p align="center">
-<img width="600" height="300" src="https://64.media.tumblr.com/7596369539644c44ecd9a7569dd952ee/d7e9847722cb2a35-4b/s540x810/383fccfaa16a7cc98020f6a666b2a51e24fa0d2c.gifv">   
+<img width="6666" height="200" src="https://64.media.tumblr.com/7596369539644c44ecd9a7569dd952ee/d7e9847722cb2a35-4b/s540x810/383fccfaa16a7cc98020f6a666b2a51e24fa0d2c.gifv">   
 </p>
