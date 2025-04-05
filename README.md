@@ -4,7 +4,7 @@
 
 
 
-$${\color{blue}.......}$$
+$${\color{pink}HAAAAIIIIIIIIIII!!!}$$
 
 <p align="center">
 <img width="460" height="300" src="https://64.media.tumblr.com/ef9c51b0b6ae1e44d92e1d793e6fda19/d7e9847722cb2a35-02/s400x600/19d59ab452e9f28e0c9d526073fdb06351f7c27b.pnj">   
